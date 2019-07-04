@@ -22,3 +22,5 @@
 建行存管支付通道如此繁杂?: https://mp.weixin.qq.com/s/9TAhJFz106g2mMtlWnJPaw
 
 草根投资幕后惊现资本大佬“汇垠系”：http://zhejiang365.com/html/2202/2019/06/24/2019-06-24_7609076_2202.shtml?from=singlemessage
+
+草根投资受邀参加澳大利亚使领馆考察浙江金融科技发展座谈会:http://m.jrj.com.cn/madapter/biz/2017/03/31114222250483.shtml?from=groupmessage#bmb=1
